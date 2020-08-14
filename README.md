@@ -1,0 +1,1 @@
+# onyame-akoa-solomon
